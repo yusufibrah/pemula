@@ -1,0 +1,2 @@
+# pemula
+masih minim pengalaman
